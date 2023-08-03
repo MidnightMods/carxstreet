@@ -37,21 +37,17 @@ or
 📍Join our Discord CarX mobile community server to participate in multiple events and giveaways!! DM us for buying!! 📩
 
 Discord : https://discord.gg/tdrt2aTzd9
+ㅤ
 Telegram : https://t.me/CarXStreetMods
+ㅤ
 Instagram : https://instagram.com/carxstreethacks
+ㅤ
 YouTube : https://youtube.com/@MidnightHacks
+ㅤ
 Facebook : https://www.facebook.com/groups/546902987209732/?ref=share
+ㅤ
 Tiktok : https://www.tiktok.com/@carx.street_mods
+ㅤ
 Website : http://midnightmods.mysellix.io
-
-Facebook group : https://www.facebook.com/groups/546902987209732/?ref=share
-
-Discord community : https://discord.gg/doorbangers
-
-Telegram channel : https://t.me/CarXStreetMods
-
-Telegram chat : https://t.me/CarXStreetMods_vouches
-
-Proof channel : https://t.me/CarXStreetMods_vouches
-
-Website store : http://midnightmods.mysellix.io
+ㅤ
+ㅤ
